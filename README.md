@@ -1,7 +1,7 @@
 ### Wellcome 🤙
 
 🇧🇷 Brazillian\
-📖 Majoring in Computer Engineering \
+📖 Majoring in Computer Engineering
 
 
 
