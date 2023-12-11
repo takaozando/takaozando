@@ -1,7 +1,7 @@
 ### Welcome 🤙
 
 🇧🇷 Brazillian\
-📖 Majoring in Computer Engineering
+📖 Computer Engineering Student
 
 
 <!--
